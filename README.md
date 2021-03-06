@@ -1,1 +1,0 @@
-# strikerman.github.io
